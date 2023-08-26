@@ -1,4 +1,3 @@
-# William Ortolá Leonard 
 ### Education
 Physics, Ph.D. - University of Florida 2025 
 
